@@ -7,267 +7,267 @@
 惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866
 惠而浦中央空调(Whirlpool)售后24小时客服热线：400 -772 -7866
 惠而浦中央空调(Whirlpool)公司主营惠而浦中央空调(Whirlpool)维修 →惠而浦中央空调(Whirlpool)；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -772 -7866、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，惠而浦中央空调(Whirlpool)服务承诺?.
-北京市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/b286158b8424bae5fd3b1db0256ead7eb9e8d5b1
+北京市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/52e7e7a9e5bfe14327bb60c99df1bfc9568f0296
 。
-南京市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/3df3c123dc1ccd97cffc95f7bf61884bf8ec378e
+南京市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/8caeb87c8d864e8e63182dbe48bb0fe6c9a50be9
 。
-秦皇岛市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式发布），点击查询：https://github.com/patrickdebbie5/rnfvn-JGEGCQ/commit/2c5afc585b8b3abdf69405202d7986c4d3c6cabd
+秦皇岛市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式发布），点击查询：https://github.com/patrickdebbie5/rnfvn-JGEGCQ/commit/789b067d86d3eda3ff22555efe42390129502ef1
 。
-珠海市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一发布），点击查询：https://github.com/patrickdebbie5/rnfvn-JGEGCQ/commit/b40c00769b563d7d3d27488abfe723eea967d5c7
+珠海市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一发布），点击查询：https://github.com/patrickdebbie5/rnfvn-JGEGCQ/commit/e8917fae23bf8ac0f8c20312645cae3f7a77e990
 。
-安康市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/lovemichael5261/rnfvn-YVKLJZ/commit/c0161e9f681b2f0a7b5ec26b1148b3dbe5f6b8c2
+安康市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/lovemichael5261/rnfvn-YVKLJZ/commit/cd677c742885ee0f97e00d40211f4b8477391935
 。
-安庆市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/a29a66623b347f4cefd1f0d89a037afe4fcc0611
+安庆市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/fc05737d7435876978265617c5f056afd8b4ae52
 。
-鞍山市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/11799ae5b0e70d49dd141a5cc1f3f81672e6b77d
+鞍山市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/238f5d8524f910289ffd4340f9325a6ef52eaaee
 。
-安阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/873a6e5f38e9708afcdc8fc1156934923b17c667
+安阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/c7e8c9e08ee78c11d4f764d1bdaa19c8b81c7322
 。
-巴中市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/18d4306a037b591005aaf4b2f3ebffbc3b7a62ce
+巴中市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/blevinsnicholas43/rnfvn-TTLWAM/commit/69eab5bfa02ddfe1e70a3b82c170ff1f9906b6eb
 。
-百色市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/martinezcatherine1/rnfvn-UFRVNB/commit/3462f695b35e596b773eadbcf666f3ae3245a2e7
+百色市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/martinezcatherine1/rnfvn-UFRVNB/commit/168f449a51fb7b6e8a8b643a8781f19db24f4452
 。
-蚌埠市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/131f0008259b667ab93cd10fd0314ce4b8217d0b
+蚌埠市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/9decbc58a5cf2d3027998b050f5726787aa9e811
 。
-保定市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/ecb140d8aefa3a6b6cc7873b969bc6e4a7462efa
+保定市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/ca8d4fecd1ec38cb82d4e944b9f9cdc04b8fcad2
 。
-宝鸡市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日更新升级），点击查询：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/d79ace8e8c7266b55cdd93cf1c73129c07c2dc3d
+宝鸡市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日更新升级），点击查询：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/e89cfb7d357435e83890429c20fec336fbd0243b
 。
-保山市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/08d7d6eb11180d805efaa9a76a68ac504d5a33fa
+保山市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/lewisdeanna8367/rnfvn-ALMSMJ/commit/4b64306aadb1446e934c31d5633e1425233e3d97
 。
-包头市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/c3e4f861d15c1c5adb97a5e3c8e30cda7c484602
+包头市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/e607bf7f2c795290bfc86592f1a33bd4a4997edd
 。
-北海市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式发布），点击查询：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/b1b0582b18e05e346b67acc19f0f3c14fd6c49f0
+北海市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式发布），点击查询：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/c9517fbd7492d9dd7420f31a2ddd94a40358dc09
 。
-本溪市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/8e7a85d7bfbc3ad461fd5d4d6324870ceda41928
+本溪市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/5f005c7078872b9125d6a031d5b27ee9722a9938
 。
-滨州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一升级），点击查询：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/a5bf33208d061c8dda770205fe38fae5f3d859fc
+滨州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一升级），点击查询：https://github.com/nelsondustin402/rnfvn-OLGNJY/commit/1a8598753c1c524c54241e6eafa26e8c8575542c
 。
-博罗市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/adamskristin61/rnfvn-QGDPCB/commit/5b8404e190c3111d5ecbb05585900ae61180bde1
+博罗市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/adamskristin61/rnfvn-QGDPCB/commit/fad66c378bce63e359ae48945914489d5bd1fb12
 。
-沧州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日更新升级），点击查询：https://github.com/johnsonaaron138/rnfvn-COXBSB/commit/aa00ba779578ba7a6629a30556ab13a2c296c057
+沧州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日更新升级），点击查询：https://github.com/johnsonaaron138/rnfvn-COXBSB/commit/9ec899e2e680e0df49b7d77a5140e1d6da8a1a68
 。
-长春市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/ea13909be553fc1da673c344a10bea724c443e5c
+长春市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/cfd0fc4f9cb0549c591a55a6ff775e813e0c159c
 。
-常德市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/mckenziemary82/rnfvn-KUTIPZ/commit/b4d2a5f499b91139950620f528b14280561bdcc4
+常德市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/mckenziemary82/rnfvn-KUTIPZ/commit/1f0e397a98d41136ae335f29a6a85effd2a8de9e
 。
-长葛市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/mckenziemary82/rnfvn-KUTIPZ/commit/221826f26b58daf0a0c05de34bcf781426365606
+长葛市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/mckenziemary82/rnfvn-KUTIPZ/commit/37eaad7713a04ea9b112c9463b897deaf8eb0ad0
 。
-长沙市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/43f4282783559a781052861ffe4ccd340819b98d
+长沙市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/8a90c2dd26674d6a7ec66faee29abbadd662b924
 。
-常熟市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/dce0508752dcf2bd92e233f2fda9fca25c648b5a
+常熟市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/1813041c8a4bfe84c73d51d4d3e35b767bc3c7b3
 。
-长兴市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布上线），点击查询：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/06a48351ad3d244ddf701fc3db5ceb4af18e98cc
+长兴市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布上线），点击查询：https://github.com/jacksonamanda1/rnfvn-VITXYW/commit/d48c10abe5aea03e7ce0529d6a6d0389a06e8d1e
 。
-长治市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/millermichael42/rnfvn-FVRVPE/commit/c3a8a74b6f49a7179ad8fa3101b05e9b8a8b7219
+长治市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/millermichael42/rnfvn-FVRVPE/commit/86a5d86223be3614ae7bd3447f59ea4fa9ed353a
 。
-常州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一升级），点击查询：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/6ab955e8c33abc62ae1216b97abd6210593b845e
+常州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一升级），点击查询：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/ebad73d670de3c94ce47c3a2c792ada9991d37dd
 。
-巢湖市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/39dc89c265d642bf3422f616491be22a71a84db3
+巢湖市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/86faa8a6a99c1e4944155d411727d6c5ade72cf7
 。
-朝阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一升级），点击查询：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/85ae8ffec216f800a2ab3290cc6459c8ebfa17f4
+朝阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一升级），点击查询：https://github.com/thorntondeborah8047/rnfvn-WQYJCB/commit/ff7540c8f17c461f66eedd37e413d19392d14487
 。
-潮州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/shahanthony4409/rnfvn-MJBZFT/commit/f3896b3d97697778b86693dd5947cf087efc3496
+潮州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/shahanthony4409/rnfvn-MJBZFT/commit/4d568dfa08d1a523d5379a9f18bc27cd43a73d35
 。
-郴州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/whiterobert8145/rnfvn-SYTEKO/commit/9e97bc849c1824c4af433836b296d698d0fe7227
+郴州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/whiterobert8145/rnfvn-SYTEKO/commit/86dc588e912cf1def8ba6753836b3f3d6f71fe0e
 。
-承德市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/98c0809d9f7344541066f0dc3513a2e77cc44e7c
+承德市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/4a6cda30e0004443d388fd91b934d9861e2746ea
 。
-成都市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新公布），点击查询：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/de6064f91f46d8369e0c874c0f91c682fe9b9bc4
+成都市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新公布），点击查询：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/ce0ad04208f769c628b4a67a8da63cecc6753f95
 。
-池州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/09dfb02cf85970d70c475a855485143cdb23d62f
+池州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/95db83d58e47372060d3d0a7e0ea1404a4847f73
 。
-崇左市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/c4cfad68cc1233b14f6359a5528355bc7ace7b19
+崇左市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/4c4d35b699359a0e3d51f9a22f61784439b33f86
 。
-滁州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/fa742e0dd92923ed6f4d9d34df6d697c049e9512
+滁州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/4c7e658366101a8d9dcd7f362e575cc256f3ca41
 。
-慈溪市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/986f288561924d482f1612b10ac77edf4552482f
+慈溪市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/yangkimberly5/rnfvn-VDAJLH/commit/ef993b601f1473af3394b8d2627135f3b37ad288
 。
-大丰市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/6c39fb242106b8a03e813dc32b4add20edfe420e
+大丰市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/c2228c77074ab734fd92bc7761e7e2607d2f8e93
 。
-大理市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/e8d4b1b583c531144578eda0a1245aded7ff6b97
+大理市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/eda5892533860cc02112b33524eb5729ac8effb8
 。
-大连市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式上线），点击查询：https://github.com/jacksonsandra35/rnfvn-BCRIQJ/commit/36ced79f5e84d5aad978f374fc189945ffa3fad9
+大连市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式上线），点击查询：https://github.com/jacksonsandra35/rnfvn-BCRIQJ/commit/aca49cd95faeb3afe6c0abad01acdef54aa579d5
 。
-大庆市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/9702d9f32664410500506a155b98ce8c1c86a890
+大庆市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/a032cc065ef4aaa06a1880a036f8660418bf05f2
 。
-大同市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/828317f0cb16f2e2218ac3b0b4cd883c048a20d2
+大同市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/df33f81869e9bf561560d72ee60310880270eac4
 。
-达州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/cf88982d2c9006e5ed71f366ceb3f0b6cf5ccf6f
+达州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/navarrojennifer503/rnfvn-COMCAF/commit/41417390d1b2fa9c1bafb1c1a540c38a17ff7f15
 。
-丹东市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/9538d270c58819a0a3fe4b6a4fe4e0a3be46f818
+丹东市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/ff8ab679352ce9bb42d84b0fa4987be55dbff9b2
 。
-德清市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新公布），点击查询：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/3b5364b0dee6b7ceeb2884f58f3fabd053b7713c
+德清市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新公布），点击查询：https://github.com/mcmillanchristy2798/rnfvn-DJLRGY/commit/008a649bf96a6c3b26d36afff3453c934c97350a
 。
-德阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/ba7db410434460ef507e48fa7b3932f64ccf8999
+德阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/67cb32a45e9c0afef1857e32d90a93c4b652e86d
 。
-德州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/7b0650c8a7b999e1b9aeeb1864cee2c9f4e84284
+德州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/williamskatelyn19/rnfvn-GLMSOF/commit/3f422086f0e78b2c6107f9278ef1569c8e0e527a
 。
-定州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/millermichael42/rnfvn-FVRVPE/commit/0265ccd108082bd99a10f1825a12e91db100a040
+定州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/millermichael42/rnfvn-FVRVPE/commit/021cb5875a44564c625c4bd2faf8f0937310bc68
 。
-东海市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/407f1c698fc8344d71ac46dd902948c7f956f011
+东海市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/7ba6a2bd4c9b1ff3effacbd77a38c5bdce5fcf69
 。
-东台市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/9d538b2669fd4fd6cf4958939cc70e21a8675cd3
+东台市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/cruzjohn4/rnfvn-VJWRSF/commit/c40ae66c78289aca366c04edb34645205cfab247
 。
-东营市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/perkinsjessica298/rnfvn-KTLJPO/commit/0a43238566b00f7cfa747a96ddda1cf5aa9e387f
+东营市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/perkinsjessica298/rnfvn-KTLJPO/commit/850039810a9b7db6734dd1096ee6de702b3e7099
 。
-东莞市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/perkinsjessica298/rnfvn-KTLJPO/commit/ed128a5cc6a19edd3b2f6fb054929e0a349c2571
+东莞市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/perkinsjessica298/rnfvn-KTLJPO/commit/668f98acba73f767babc5c6ff9732e6aa3266134
 。
-鄂尔市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布上线），点击查询：https://github.com/changwhitney505/rnfvn-AQGAQV/commit/2dc94dc2bd3119f7d014d03e30dfea2a3520dc6c
+鄂尔市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布上线），点击查询：https://github.com/changwhitney505/rnfvn-AQGAQV/commit/3bb5448370ec1381504a52f82d39def4702e0385
 。
-鄂州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/brownerica934/rnfvn-PXJMXG/commit/f6218c894c01e4522623b3e18680b976096364a9
+鄂州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/brownerica934/rnfvn-PXJMXG/commit/bb1ac3550163ebf4d84ca6ccc4671c018356d0f9
 。
-恩施市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/9fc431d7ce7336903c427fda6baa3ff0070df143
+恩施市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/hernandezjohn75/rnfvn-CHKLSQ/commit/950dd1dedcf83f5767c352467c993011a181c0e6
 。
-防城港市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/johnsonrichard4/rnfvn-YJCBAC/commit/b72958f39e747e906e5b2898c9be6dbecbb0c076
+防城港市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/johnsonrichard4/rnfvn-YJCBAC/commit/34fd07740f98e7d2e577fbe885062ddf8b027c89
 。
-佛山市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/johnsonrichard4/rnfvn-YJCBAC/commit/535d36f3c8347304e741a1a1d7172ab6f80d4d99
+佛山市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/johnsonrichard4/rnfvn-YJCBAC/commit/28ab367a327a8516c5d1762d5e61bd0c87693216
 。
-抚顺市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/wheelerangel9562/rnfvn-UKFACX/commit/e4a857c109d638b07f2d9c5c0d50134dad89d9e1
+抚顺市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/wheelerangel9562/rnfvn-UKFACX/commit/0c4dcd21c42cf053ae1f35d206766c116001bf62
 。
-阜新市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/wheelerangel9562/rnfvn-UKFACX/commit/95a853a8e79eadb46e0fe047f9fd4e46d27b0fd4
+阜新市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/wheelerangel9562/rnfvn-UKFACX/commit/0d7e8375e58f9d3ab5c5e8cff807958c2cf7a817
 。
-阜阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/wheelerangel9562/rnfvn-UKFACX/commit/d68d5641e4731b5a89a66a389786aa8c2ced1420
+阜阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/wheelerangel9562/rnfvn-UKFACX/commit/cee31d8c8555e9d9bb40d1cc1bf2101a218ce1d5
 。
-抚州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一发布），点击查询：https://github.com/wheelerpenny0694/rnfvn-TTJIPJ/commit/5d82c44102c719efcc9f700c47833c23283e656a
+抚州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一发布），点击查询：https://github.com/wheelerpenny0694/rnfvn-TTJIPJ/commit/2b7c3b60c3b3fe0505e75190912e3573af52bdf3
 。
-福州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/wheelerpenny0694/rnfvn-TTJIPJ/commit/75efca2a6180f3e0b0d52f8e7a0d548a3e3ee407
+福州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/wheelerpenny0694/rnfvn-TTJIPJ/commit/aaccec0e62ec246ad13cb869e7c6893c8c664e1b
 。
-赣州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/rodgerskyle6654/rnfvn-OLAAOW/commit/02f83ba96483182d35c6be20c94b34bb3c49cab3
+赣州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/rodgerskyle6654/rnfvn-OLAAOW/commit/df3d907f06188b2f82d4a170519b4f5e16d088ad
 。
-馆陶市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/rodgerskyle6654/rnfvn-OLAAOW/commit/e8985d7dd5c4c9684e8d3a5ff0bc5cc13b5e0fa6
+馆陶市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/rodgerskyle6654/rnfvn-OLAAOW/commit/da45219de9236332d458074ece948cd4e02b462d
 。
-广安市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日更新升级），点击查询：https://github.com/rodgerskyle6654/rnfvn-OLAAOW/commit/27fbbf56d5deeaaa11abe231cb0f1541a1e77708
+广安市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日更新升级），点击查询：https://github.com/rodgerskyle6654/rnfvn-OLAAOW/commit/58177858caccb4fa92a210652908cffb38890805
 。
-广元市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布上线），点击查询：https://github.com/martinmichael8412/rnfvn-FCRVYC/commit/885e4a9ec9d72c26503125a745c0c0b688062e66
+广元市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布上线），点击查询：https://github.com/martinmichael8412/rnfvn-FCRVYC/commit/56a3cd6ec0b828dc0edd64326b20a72d932f24bb
 。
-广州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/martinmichael8412/rnfvn-FCRVYC/commit/2db4db9c3aae2b1b0efb8a6a51c59e32ee98a44f
+广州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网升级），点击查询：https://github.com/martinmichael8412/rnfvn-FCRVYC/commit/a56d172baa08013336cef28a5f93af22fff96141
 。
-贵港市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式上线），点击查询：https://github.com/sandersdeanna54/rnfvn-CCDKHW/commit/7c939ddbd972f67ba65d04ca0f68afec9fae506d
+贵港市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式上线），点击查询：https://github.com/sandersdeanna54/rnfvn-CCDKHW/commit/85c1742708bec52a2e988fee7f0ebb0afd79a9d4
 。
-桂林市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/sandersdeanna54/rnfvn-CCDKHW/commit/f099df196456fbc1cd908945b5a697233f197477
+桂林市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/sandersdeanna54/rnfvn-CCDKHW/commit/7a17d862117c1f11dc0f7b12a04dde5547c03baa
 。
-贵阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日更新升级），点击查询：https://github.com/sandersdeanna54/rnfvn-CCDKHW/commit/e4ec7793e3ac8b40bf060ef405c14fb55c89a979
+贵阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日更新升级），点击查询：https://github.com/sandersdeanna54/rnfvn-CCDKHW/commit/10775298278ee6f1263e33a85d00373ed533d6fe
 。
-哈尔滨市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/pricebarbara2/rnfvn-KCINYZ/commit/fb8ed29f8e5d99bcef621f99347a5b5b692a5e1d
+哈尔滨市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/pricebarbara2/rnfvn-KCINYZ/commit/04c0dfc00d7153f286dea08fdd7d51cf1844ec64
 。
-海安市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/pricebarbara2/rnfvn-KCINYZ/commit/318833a4fd679cad9274132b1f7184cfbe4839ca
+海安市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/pricebarbara2/rnfvn-KCINYZ/commit/cd970403fcbb63c2b0709e39d61fa63fb152ad18
 。
-海口市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/haydenjustin993/rnfvn-XRDCJP/commit/b0e09c57cb92814fc6cf531661d15b6e9f40d914
+海口市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/haydenjustin993/rnfvn-XRDCJP/commit/d59b88e7db27a2306725981e25f17f8273f89c94
 。
-海门市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/411046671522bce4de68e4e61e27a3c803b16bb7
+海门市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/c0a600ae85732e701ef2e6f830b97b7600fb798a
 。
-海宁市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式上线），点击查询：https://github.com/hernandezmarissa9566/rnfvn-SQKWYM/commit/f1c4ec5c0515b1c82f68a98461f2cdf88b72d60d
+海宁市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式上线），点击查询：https://github.com/hernandezmarissa9566/rnfvn-SQKWYM/commit/e59faff97db3bba244f5181237d6a367c787a7ed
 。
-邯郸市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/hernandezmarissa9566/rnfvn-SQKWYM/commit/c8d70cfc36a9991df6f729595f69ab2452e18ac2
+邯郸市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/hernandezmarissa9566/rnfvn-SQKWYM/commit/6ba0863ff40489567102795d9fc8a06205ba1e7d
 。
-汉中市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/hernandezmarissa9566/rnfvn-SQKWYM/commit/c00f665acaeebddd20eaff86264715d20dbb6d51
+汉中市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/hernandezmarissa9566/rnfvn-SQKWYM/commit/b72ddf85628db3e019c02bc73204f4db982307d6
 。
-杭州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一更新），点击查询：https://github.com/brownerica934/rnfvn-PXJMXG/commit/e40429358a1be9afd6c75ce0ce35c9c8414595e9
+杭州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一更新），点击查询：https://github.com/brownerica934/rnfvn-PXJMXG/commit/6cddb52d2af49fef734586c312b77f1bc90a7a32
 。
-鹤壁市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/brownerica934/rnfvn-PXJMXG/commit/6354e8ed4b08f6566b5e33c21c73d67d893b87d6
+鹤壁市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/brownerica934/rnfvn-PXJMXG/commit/eef0a0b51ccbd0fa1f0c435a95f1f016b643fc7f
 。
-河池市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布上线），点击查询：https://github.com/brownerica934/rnfvn-PXJMXG/commit/c1ecd534508c5598f43ad1c4aeed9ff2428ab4cc
+河池市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布上线），点击查询：https://github.com/brownerica934/rnfvn-PXJMXG/commit/a5fb56f9b5574847ba2e17136aec37b467c7f3ac
 。
-合肥市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/alvaradoedgar337238/tztarur-TFAAAX/commit/32dfdd42606abd9fdbcda5143e8bfe9e3a399e65
+合肥市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/alvaradoedgar337238/tztarur-TFAAAX/commit/644917170698ab2ee125e50831ff57c94a5e66db
 。
-河源市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/alvaradoedgar337238/tztarur-TFAAAX/commit/c1d95732ae8201f726ab1660717b3449795087bb
+河源市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/alvaradoedgar337238/tztarur-TFAAAX/commit/56c90aa085e66f94c0031ec3fee9183d9beeb841
 。
-菏泽市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/alvaradoedgar337238/tztarur-TFAAAX/commit/3e574b4069543bb60f7ae4db3342ea2de2a04509
+菏泽市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/alvaradoedgar337238/tztarur-TFAAAX/commit/299cd00abff950543b66371ece0e00a5c61dc4c8
 。
-贺州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/schroederheather3584/tztarur-HUWDWM/commit/27a06277979cc405d16add7f24dff362828786c4
+贺州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/schroederheather3584/tztarur-HUWDWM/commit/6f95ea8ca99d7cdb0662f444ce9accd901490f84
 。
-衡水市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/schroederheather3584/tztarur-HUWDWM/commit/5d741e4c04f6018f6b81525b152aab8a64fa35c7
+衡水市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/schroederheather3584/tztarur-HUWDWM/commit/d53ef8a059f36f32dad5ae9cb3d645ef48ba4f39
 。
-衡阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/Civilunderexemplify/apple-BZSMC/commit/a9befd86f7f5b26ff4eb6f93cfa697544f8857b0
+衡阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/Civilunderexemplify/apple-BZSMC/commit/998f85cdcc553806e2e791ceea2f6acdf04940a9
 。
-呼和浩特市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/Urbanzyaembroider/tztrtur-CSBOBT/commit/f0d1d9adf1cbd78b112269027a17f63876ec108f
+呼和浩特市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/Urbanzyaembroider/tztrtur-CSBOBT/commit/8729fb0ba20d4ed44be8d2992c6992f1647b39f0
 。
-葫芦岛市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一升级），点击查询：https://github.com/Urbanzyaembroider/tztrtur-CSBOBT/commit/2b39262f51a647788cd3ff99acebb4645f8429f1
+葫芦岛市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一升级），点击查询：https://github.com/Urbanzyaembroider/tztrtur-CSBOBT/commit/39cdff25c011e0a710f9ecca1b6e7e2a1c707452
 。
-湖州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一更新），点击查询：https://github.com/Urbanzyaembroider/tztrtur-CSBOBT/commit/5388e12fbf4533b66dea1e62572feed28c391967
+湖州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一更新），点击查询：https://github.com/moorekevin1671/tztarur-SRQJFR/commit/7b63d48f10119f46f111df68514b1114f6eeba1d
 。
-淮安市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/northcentipedehose/tztarur-KWGOOH/commit/1df74f2568f8ef5c75c1af460dfc6382ff03db4a
+淮安市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/northcentipedehose/tztarur-KWGOOH/commit/5fa0a6c38408da260840f5deb0d2bbcbd5c025f5
 。
-淮北市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/northcentipedehose/tztarur-KWGOOH/commit/f5cd87cb3c3c2a8aecb0ce5985f5ae1c7d9c3387
+淮北市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网更新），点击查询：https://github.com/northcentipedehose/tztarur-KWGOOH/commit/e95d2a3e36ccc4444343af237d157edec7edde87
 。
-怀化市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/northcentipedehose/tztarur-KWGOOH/commit/41f0a05dd2482d85acc9faca59ad55b293a46238
+怀化市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新更新），点击查询：https://github.com/northcentipedehose/tztarur-KWGOOH/commit/603cd68f771ec14e5927876b0b3d4bb6f42e8cc5
 。
-淮南市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新公布），点击查询：https://github.com/camposmichael07280/tztarur-XQRNLX/commit/8f02912879aa70f4eb5ecbd4d7e97303c3401e72
+淮南市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新公布），点击查询：https://github.com/camposmichael07280/tztarur-XQRNLX/commit/9e62ea7b113f08d045ea7271595135c47527a508
 。
-黄冈市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/camposmichael07280/tztarur-XQRNLX/commit/16f64dd488d1729a2f2cb3341e0ce367af1264c3
+黄冈市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/camposmichael07280/tztarur-XQRNLX/commit/5590b885103f1725a44acc2b044263e9efa9e534
 。
-黄山市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/camposmichael07280/tztarur-XQRNLX/commit/5819f5fd5c691a79c6049fb37bf1ac8ca804c41e
+黄山市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/camposmichael07280/tztarur-XQRNLX/commit/637d1b1275ec3ad9c6c651016edea9084af4ba4f
 。
-黄石市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新公布），点击查询：https://github.com/gonzalezashley13078/tztarur-WIMKBX/commit/c67272ed3d6853796b251326e68c30aeaf9d9248
+黄石市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新公布），点击查询：https://github.com/gonzalezashley13078/tztarur-WIMKBX/commit/bc300a895381868544a805d3cc3110a6d8ae34bf
 。
-惠东市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/gonzalezashley13078/tztarur-WIMKBX/commit/6d95947c893339abaff0e4e5d96e29c7e7d9d3d8
+惠东市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/gonzalezashley13078/tztarur-WIMKBX/commit/76f5c8183b0f63bc805aa98480b3ef1811cf4e3f
 。
-惠州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/gonzalezashley13078/tztarur-WIMKBX/commit/41b5caaac878e304b4ca3fec764a6b9eb21dcc7c
+惠州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/gonzalezashley13078/tztarur-WIMKBX/commit/a25db3084a6a0177cfafbdfd009e7d2fffb2d88d
 。
-霍邱市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/ChordFogKnow/tztarur-DWKVCY/commit/ab7b6593a42d46abe2b5872b593711fcace41cf4
+霍邱市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/ChordFogKnow/tztarur-DWKVCY/commit/0020489ba32f7819ca2a01b62ecf0bcddc0da8f7
 。
-吉安市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/ChordFogKnow/tztarur-DWKVCY/commit/fda0ca78891c1f5eaf3644bb322c711e4d6eff54
+吉安市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/ChordFogKnow/tztarur-DWKVCY/commit/89a832d2170cb01723e1535d606f489e268430c7
 。
-吉林市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/ChordFogKnow/tztarur-DWKVCY/commit/2d8f04b83c68831cdc552865ed22055a32f1de76
+吉林市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/ChordFogKnow/tztarur-DWKVCY/commit/a0acc040fc08bbd11105a3da25960837e4aa990d
 。
-济南市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一更新），点击查询：https://github.com/williamschristopher404939/tztarur-ZEBGQQ/commit/80d96ffdfe9b30a30ccb2619e5de5f311be6e5dc
+济南市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一更新），点击查询：https://github.com/williamschristopher404939/tztarur-ZEBGQQ/commit/9e7d9d1dbc69e3c2fb95a072964601972cd1d734
 。
-济宁市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/williamschristopher404939/tztarur-ZEBGQQ/commit/e8f247075f1c2521e8b89511b154617e461a6960
+济宁市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/williamschristopher404939/tztarur-ZEBGQQ/commit/3a77b56945883a0b037ed0e7e355f3ca3f0a0b26
 。
-济源市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日更新升级），点击查询：https://github.com/smithbrandon07/rnfvn-YGTQFR/commit/fee34caefbbd89656410933474622cca1332330b
+济源市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日更新升级），点击查询：https://github.com/smithbrandon07/rnfvn-YGTQFR/commit/d148054ca8a11087958ca7e883b7927f6534c314
 。
-佳木斯市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式发布），点击查询：https://github.com/smithbrandon07/rnfvn-YGTQFR/commit/10193c66f687859075d6967a8adf56060e51ae7a
+佳木斯市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式发布），点击查询：https://github.com/smithbrandon07/rnfvn-YGTQFR/commit/3fe8040db6a50efb194f178210d083c39a1641c8
 。
-嘉善市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一更新），点击查询：https://github.com/smithbrandon07/rnfvn-YGTQFR/commit/fd76c9bc4d1befb67adbf6382a2e634450b11f83
+嘉善市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一更新），点击查询：https://github.com/johnsonrichard4/rnfvn-YJCBAC/commit/be6220de02a8c76f313694cd55d1783edaecabb2
 。
-嘉兴市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布上线），点击查询：https://github.com/campbelljames649/rnfvn-JZTPOB/commit/052f842fcae519257176bdc28e840afb245ecbce
+嘉兴市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布上线），点击查询：https://github.com/campbelljames649/rnfvn-JZTPOB/commit/b79186d69ce210532fee5c1eaaab8eb03245c3a2
 。
-嘉峪关市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/campbelljames649/rnfvn-JZTPOB/commit/df7b80cd54ee8e3f95cc3087cb6e7b1f2f6b1016
+嘉峪关市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/campbelljames649/rnfvn-JZTPOB/commit/f3632389076cd67927ec0856d88c0f882b749a92
 。
-建湖市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/greenthomas2538/rnfvn-JVZTLW/commit/3a140fdf8e500c87c3436f63f638d9f8f6861e42
+建湖市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/greenthomas2538/rnfvn-JVZTLW/commit/7af26ab74033c096ca307d2bfe42bea64d32c993
 。
-江门市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/greenthomas2538/rnfvn-JVZTLW/commit/c06335d7f8168c59d33419bdc43d71a1ed7fa365
+江门市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/greenthomas2538/rnfvn-JVZTLW/commit/d79ec98ed38d5c0c5ce96651e79954f9e8671610
 。
-江阴市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式发布），点击查询：https://github.com/greenthomas2538/rnfvn-JVZTLW/commit/26f84c21bfab4dc1b7e49b0dd929a0be2b5d3de4
+江阴市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式发布），点击查询：https://github.com/greenthomas2538/rnfvn-JVZTLW/commit/aa35577117cec24196cc930094fcec978e130b53
 。
-焦作市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/68769c42c2fd312ba71892815b82b5ca66cbe895
+焦作市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/6eb408f28d817026cedd603b696550563aa11b3b
 。
-揭阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/72e2f105c197e126de7c6fc9c7dcc1896dc75f2a
+揭阳市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日最新推出），点击查询：https://github.com/bradleyjeffrey48/rnfvn-HCHDIG/commit/05560274c315b30ec870b40bbbaa27fdbeca831d
 。
-金华市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式上线），点击查询：https://github.com/pricebarbara2/rnfvn-KCINYZ/commit/1ef0c407790a07e65647738fd976e2451060eca6
+金华市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式上线），点击查询：https://github.com/pricebarbara2/rnfvn-KCINYZ/commit/80337563ae84d1adeda2d3770bd7b6ba1ce3fa10
 。
-晋江市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/benitezelizabeth5/rnfvn-GFPWYD/commit/9b37e0c1f8669518c75fe541bf79465e5d45d08c
+晋江市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新升级），点击查询：https://github.com/benitezelizabeth5/rnfvn-GFPWYD/commit/cd71e0bb5fcc0c8fca8a23dc89e88fe74afff572
 。
-锦州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/benitezelizabeth5/rnfvn-GFPWYD/commit/6d2f98af171cbfd9ed49f4d883dd7e557e178bbf
+锦州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日统一上线），点击查询：https://github.com/benitezelizabeth5/rnfvn-GFPWYD/commit/df0edf7704e6fb311253159f7562066544067c25
 。
-景德镇市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/s4rs9fzvds/rnfvn-BOFKNX/commit/1b5a1197159c3b478a95da1afe2e40421b7a40c1
+景德镇市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/s4rs9fzvds/rnfvn-BOFKNX/commit/f578f1b2d832d769f0a66b6f70121db0b81195ca
 。
-靖江市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/taylorjoanna067/rnfvn-DXCSRF/commit/5b03fd1c182c4ef0a1c1a6226f1218da0b911c94
+靖江市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/taylorjoanna067/rnfvn-DXCSRF/commit/1519a0919d8be7327314688106ba436ba0e315cc
 。
-荆门市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/taylorjoanna067/rnfvn-DXCSRF/commit/7369dd17a86c6163db7460187193e47819500b34
+荆门市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式推出），点击查询：https://github.com/taylorjoanna067/rnfvn-DXCSRF/commit/1dd053231c3e6649a11b27d4f12cc70be767c644
 。
-荆州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/c621df1f23e27ef2a0162a1ee295943326c53503
+荆州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/ZixuanWu-efk/qeigra/commit/4e5caf184e4cde65d9abbb3cd3973e3d755cd1ec
 。
-九江市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/fed977c2bf4f8f4fa7bb161d69fe0599f97f5b5a
+九江市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/ZixuanWu-efk/qeigra/commit/3e982fb14191dd769e35d58d8c210ef4b7508bec
 。
-喀什市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/98cd5c83a51c798b96e01625bc01a27a8e122d48
+喀什市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网发布），点击查询：https://github.com/YufeiDing-rs5/kfxbza/commit/f3c9b48c14358f3f1f39794b6e89187f3bc98558
 。
-开封市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/31be4302ebbe1b5f6463f69bd0a939880a353698
+开封市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/YufeiDing-rs5/kfxbza/commit/2410ae0ad47a5eae8267cd1dd998573281dbf21c
 。
-克拉玛市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/8f5c6dab28db7162e6852b7ebd0249dcbfb93388
+克拉玛市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/YufeiDing-rs5/kfxbza/commit/16bb3f1c4358938cc85efff1b428ec709ef4eed3
 。
-垦利市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/4b31cc78246d69a87ef9773c73f4a8eadb7bdc67
+垦利市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/YufeiDing-rs5/kfxbza/commit/f9ae9f6b09d11be714180df8b4744d22b3752271
 。
-昆明市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新公布），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/03e786ec98009bc651306479818c77413daade0b
+昆明市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新公布），点击查询：https://github.com/YufeiDing-rs5/kfxbza/commit/4f67cf351420a49d9ce6bfc714f614d1333a56d9
 。
-昆山市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/d5d04668c3a55c0ae0a6acf06883b56ff266e1d5
+昆山市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日公布升级），点击查询：https://github.com/flyousur/vnhykq/commit/61dce5604909bb7cf91932d7e3da5e2207db2841
 。
-拉萨市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/fa10c388bc5ff137f1ecaf1651ad126c47fcd4c6
+拉萨市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网公布），点击查询：https://github.com/flyousur/vnhykq/commit/6f7380a663ba1841dcccfff58fdb4b1442401054
 。
-来宾市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/211189f0b7da3a5cb4c19b133b2c66ac583522e7
+来宾市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日正式更新），点击查询：https://github.com/flyousur/vnhykq/commit/ed0633de8b1a738e55e2cb59100def713d066bb6
 。
-莱芜市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/a149000e30f82cf9012456a3111be832ccf1e38b
+莱芜市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日官网上线），点击查询：https://github.com/ShihanZhou-ij9/nliqrh/commit/b866853c8950e8f1c395029955e0708bc79d08bb
 。
-兰州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/JunjieZhang-0is/fzjcrn/commit/8f28287b8f8d61737dfcb847c8ae36309bf07890
+兰州市惠而浦中央空调(Whirlpool)售后服务电话：400 -772 -7866（2026年08月11日全新上线），点击查询：https://github.com/ShihanZhou-ij9/nliqrh/commit/2c8638344089ac30c210b77251eec293969ed8f6
 addsfsdfaf8.9.15
